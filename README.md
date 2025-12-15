@@ -1,7 +1,6 @@
-<img width="1400" height="1086" alt="IMG_3180" src="https://github.com/user-attachments/assets/5d9a1302-3849-4709-bd4c-3094d601a025" />
 
 
-## _&nbsp; practice makes purpose_ &nbsp; &nbsp; &nbsp; ᯓ
+#### &nbsp; &nbsp; &nbsp;&nbsp;&nbsp;&nbsp; sign our tree 👀👀👀
 <br> 
 <br> 
 <br> 
@@ -26,13 +25,6 @@
 
 <br> 
 <br> 
-<br>
-<br> 
-
-  
-> <p align="center"> <sup> this might look weird on phones ·_·;; </sup>
-
-<br> 
 <br> 
 <br> 
 
@@ -47,11 +39,6 @@
 <br> 
 <br>
 
-> <p align="center"> <sup> you can (most of the time)always spot us near the sign next to bakery,  near or at a mafia with friends &nbsp; &nbsp; , &nbsp; &nbsp; feel free to &nbsp; (whisper to)interact aslong as we dont have any dnis in our name </sup> 
-
-<br> 
-<br> 
-<br> 
   
   <div align="center">
   
